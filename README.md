@@ -3,7 +3,7 @@
 🎓 **Business Analyst | Software Developer | IT Undergraduate**  
 📍 Based in Wattala, Sri Lanka  
 📧 [ravindith10@gmail.com](mailto:ravindith10@gmail.com)  
-🔗 [LinkedIn](https://www.linkedin.com/in/ravindithwijesundara) • [GitHub](https://github.com/RavindithDinusara)
+🔗 [LinkedIn](https://www.linkedin.com/in/ravindith-wijesundara-441923341 ) • [GitHub](https://github.com/RavindithDinusara)
 
 ---
 
